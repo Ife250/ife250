@@ -1,4 +1,4 @@
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/t3tbKCJ/K-gsl-y-Goku.jpg" alt="Kíñgsléy Goku" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://telegra.ph/file/62343526f5de4fb048476.jpg" alt="Kíñgsléy Goku" border="0"></a>
 
 ## <!-- Typing SVG -->
 <p align="center">
